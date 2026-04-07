@@ -24,7 +24,7 @@ I build real-world applications with modern technologies — from real-time chat
 ### 📫 Let's Connect
 
 - **LinkedIn**: [linkedin.com/in/hemanth-kumar-4307a5291](https://www.linkedin.com/in/hemanth-kumar-4307a5291/)
-- **Email**: (add your email if you want)
+- **Email**: hemanthkummari5@gmail.com
 
 ---
 
